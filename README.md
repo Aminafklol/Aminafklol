@@ -1,9 +1,18 @@
-Test... how do i use ts </3
-<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/67013546-903f-4d0b-a280-a9d7fc31fcee" />
-HAIIII im amina, U can call me Ze tho
 
-Multifandom^^ Mains are Aregect and Dandys world
+<img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/70095949-0b45-41c3-99e8-61729a27fd46" />  
 
-She/her And Asexual^^
+𝚌𝚊𝚗 𝚞 𝚐𝚞𝚎𝚜𝚜 𝚠𝚑𝚘 𝚖𝚢 𝚏𝚊𝚟 𝚒𝚜 (ᵕ—ᴗ—) (hint its regect)
+                                         
+                                         ★𝚆𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚖𝚢 𝚙𝚛𝚘𝚏𝚒𝚕𝚎★
+  
+<img width="223" height="20" alt="image" src="https://github.com/user-attachments/assets/20963704-a161-41ce-8b30-566ba07d14e3" />
 
-Pfp and art above not mine
+
+𝙰𝚋𝚘𝚞𝚝 𝚖𝚎
+
+𝙼𝚢 𝚗𝚊𝚖𝚎 𝚒𝚜 𝚊𝚖𝚒𝚗𝚊 𝚋𝚞𝚝 𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚣𝚎 (˶>⩊<˶)
+
+
+𝚂𝚑𝚎/𝚑𝚎𝚛 + 𝙰𝚌𝚎 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a6225fbc-892f-49a5-b212-c578f175141f" />
+
+Im 15 So 18+ dni (⸝⸝๑﹏๑⸝⸝)
