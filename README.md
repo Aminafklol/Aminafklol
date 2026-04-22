@@ -34,3 +34,7 @@ Im 14 So 18+ dni (⸝⸝๑﹏๑⸝⸝)
 𝚢𝚘𝚞𝚝𝚞𝚋𝚎: https://www.youtube.com/@Aminafklol
 
 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 (𝚠𝚒𝚙): https://btotheze.straw.page
+
+𝚃𝚒𝚔𝚝𝚘𝚔: https://tiktok.com/totally_notamina
+
+𝙿𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝: https://www.pinterest.com/AminaXDDD/_profile/
