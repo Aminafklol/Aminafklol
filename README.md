@@ -1,6 +1,5 @@
 
 <img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/70095949-0b45-41c3-99e8-61729a27fd46" /> 
-<img width="150" height="232" alt="pony-town-Ze-Fictkin_C+H-boop-sit-blinking-padded-4x (1)" src="https://github.com/user-attachments/assets/15046936-607d-4c9c-9f70-cc582ed211c0" />
 
 
 
@@ -15,10 +14,13 @@
 
 𝙼𝚢 𝚗𝚊𝚖𝚎 𝚒𝚜 𝚊𝚖𝚒𝚗𝚊 𝚋𝚞𝚝 𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚣𝚎 (˶>⩊<˶)
 
+𝚉𝚎 𝚊𝚗𝚍 𝚝𝚠𝚘 𝚝𝚒𝚖𝚎 𝚏𝚒𝚌𝚝𝚒𝚘𝚗𝚔𝚒𝚗
+
 
 𝚂𝚑𝚎/𝚑𝚎𝚛 + 𝙰𝚌𝚎 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a6225fbc-892f-49a5-b212-c578f175141f" />
 
 Im 14 So 18+ dni (⸝⸝๑﹏๑⸝⸝)
+
 <img width="900" height="52" alt="image" src="https://github.com/user-attachments/assets/e0c74378-3d8d-4364-b78c-669d1087d8aa" />
 
 𝙸𝚛𝚕💕~ 𝙱, 𝚃, 𝙷, 𝚁, 𝙺
