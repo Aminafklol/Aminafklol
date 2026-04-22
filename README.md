@@ -26,3 +26,11 @@ Im 14 So 18+ dni (⸝⸝๑﹏๑⸝⸝)
 𝙸𝚛𝚕💕~ 𝙱, 𝚃, 𝙷, 𝚁, 𝙺
 
 𝙾𝚗𝚕𝚒𝚗𝚎💕~ 𝚂, 𝙺, 𝙱, 𝙰, 𝚃, 𝙴
+
+<img width="223" height="20" alt="image" src="https://github.com/user-attachments/assets/20963704-a161-41ce-8b30-566ba07d14e3" />
+
+𝙻𝚒𝚗𝚔𝚜
+
+𝚢𝚘𝚞𝚝𝚞𝚋𝚎: https://www.youtube.com/@Aminafklol
+
+𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 (𝚠𝚒𝚙): https://btotheze.straw.page
