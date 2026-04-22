@@ -21,7 +21,7 @@
 
 Im 14 So 18+ dni (⸝⸝๑﹏๑⸝⸝)
 
-<img width="900" height="52" alt="image" src="https://github.com/user-attachments/assets/e0c74378-3d8d-4364-b78c-669d1087d8aa" />
+<img width="223" height="20" alt="image" src="https://github.com/user-attachments/assets/e0c74378-3d8d-4364-b78c-669d1087d8aa" />
 
 𝙸𝚛𝚕💕~ 𝙱, 𝚃, 𝙷, 𝚁, 𝙺
 
