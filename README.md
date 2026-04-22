@@ -16,3 +16,8 @@
 𝚂𝚑𝚎/𝚑𝚎𝚛 + 𝙰𝚌𝚎 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a6225fbc-892f-49a5-b212-c578f175141f" />
 
 Im 14 So 18+ dni (⸝⸝๑﹏๑⸝⸝)
+<img width="900" height="52" alt="image" src="https://github.com/user-attachments/assets/e0c74378-3d8d-4364-b78c-669d1087d8aa" />
+
+Irl💕~ B, T, H, R, K
+
+Online💕~ S, K, B, A, T, E
