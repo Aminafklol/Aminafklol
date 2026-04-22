@@ -18,6 +18,6 @@
 Im 14 So 18+ dni (⸝⸝๑﹏๑⸝⸝)
 <img width="900" height="52" alt="image" src="https://github.com/user-attachments/assets/e0c74378-3d8d-4364-b78c-669d1087d8aa" />
 
-Irl💕~ B, T, H, R, K
+𝙸𝚛𝚕💕~ 𝙱, 𝚃, 𝙷, 𝚁, 𝙺
 
-Online💕~ S, K, B, A, T, E
+𝙾𝚗𝚕𝚒𝚗𝚎💕~ 𝚂, 𝙺, 𝙱, 𝙰, 𝚃, 𝙴
