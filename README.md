@@ -1,5 +1,8 @@
 
-<img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/70095949-0b45-41c3-99e8-61729a27fd46" />  
+<img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/70095949-0b45-41c3-99e8-61729a27fd46" /> 
+<img width="150" height="232" alt="pony-town-Ze-Fictkin_C+H-boop-sit-blinking-padded-4x (1)" src="https://github.com/user-attachments/assets/15046936-607d-4c9c-9f70-cc582ed211c0" />
+
+
 
 𝚌𝚊𝚗 𝚞 𝚐𝚞𝚎𝚜𝚜 𝚠𝚑𝚘 𝚖𝚢 𝚏𝚊𝚟 𝚒𝚜 (ᵕ—ᴗ—) (hint its regect)
                                          
