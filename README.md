@@ -14,7 +14,7 @@
 
 𝙼𝚢 𝚗𝚊𝚖𝚎 𝚒𝚜 𝚊𝚖𝚒𝚗𝚊 𝚋𝚞𝚝 𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚣𝚎 (˶>⩊<˶)
 
-𝚉𝚎 𝚊𝚗𝚍 𝚝𝚠𝚘 𝚝𝚒𝚖𝚎 𝚏𝚒𝚌𝚝𝚒𝚘𝚗𝚔𝚒𝚗
+𝚉𝚎 𝚊𝚗𝚍 L 𝚏𝚒𝚌𝚝𝚒𝚘𝚗𝚔𝚒𝚗
 
 
 𝚂𝚑𝚎/𝚑𝚎𝚛 + 𝙰𝚌𝚎 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a6225fbc-892f-49a5-b212-c578f175141f" />
