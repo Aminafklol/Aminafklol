@@ -1,38 +1,34 @@
 
-<img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/70095949-0b45-41c3-99e8-61729a27fd46" /> 
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/8bc1cc2f-3c3c-47ab-b710-63c8efb9bf52" />
 
-
-
-𝚌𝚊𝚗 𝚞 𝚐𝚞𝚎𝚜𝚜 𝚠𝚑𝚘 𝚖𝚢 𝚏𝚊𝚟 𝚒𝚜 (ᵕ—ᴗ—) (hint its regect)
                                          
-                                         ★𝚆𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚖𝚢 𝚙𝚛𝚘𝚏𝚒𝚕𝚎★
+                                                       ★𝚆𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚖𝚢 𝚙𝚛𝚘𝚏𝚒𝚕𝚎★
   
-<img width="223" height="20" alt="image" src="https://github.com/user-attachments/assets/20963704-a161-41ce-8b30-566ba07d14e3" />
+<img width="562" height="19" alt="image" src="https://github.com/user-attachments/assets/346ec90a-a4d7-495c-97ba-cb1cf8cf735d" />
 
 
-𝙰𝚋𝚘𝚞𝚝 𝚖𝚎
+about me
 
-𝙼𝚢 𝚗𝚊𝚖𝚎 𝚒𝚜 𝚊𝚖𝚒𝚗𝚊 𝚋𝚞𝚝 𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚣𝚎 (˶>⩊<˶)
+looey fictionkin
 
-𝚉𝚎 𝚊𝚗𝚍 L 𝚏𝚒𝚌𝚝𝚒𝚘𝚗𝚔𝚒𝚗
+amina/ze
 
+sʜᴇ/ʜᴇʀ+ᴀᴄᴇ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a6225fbc-892f-49a5-b212-c578f175141f" />
 
-𝚂𝚑𝚎/𝚑𝚎𝚛 + 𝙰𝚌𝚎 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a6225fbc-892f-49a5-b212-c578f175141f" />
-
-Im 15 So 18+ dni (⸝⸝๑﹏๑⸝⸝)
+ɪᴍ 15 sᴏ 18+ ᴅɴɪ (⸝⸝๑﹏๑⸝⸝)
 
 any ships dni unless i int first
 
-𝚒𝚏 𝚒 𝚝𝚎𝚕𝚕 𝚢𝚘𝚞 𝚒𝚖 𝚞𝚗𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎 𝚠𝚒𝚝𝚑 𝚜𝚘𝚖𝚎𝚝𝚑𝚒𝚗𝚐 𝚘𝚛 𝚒 𝚐𝚒𝚟𝚎 𝚍𝚛𝚢 𝚛𝚎𝚜𝚙𝚘𝚗𝚜𝚎𝚜 𝚊𝚗𝚍 𝚢𝚘𝚞 𝚔𝚎𝚎𝚙 𝚘𝚗 𝚒𝚗𝚝 𝚙𝚕𝚎𝚊𝚜𝚎 𝚓𝚞𝚜𝚝 𝚠𝚊𝚕𝚔 𝚊𝚠𝚊𝚢!! 𝙸 𝚑𝚊𝚝𝚎 𝚋𝚎𝚒𝚗𝚐 𝚌𝚘𝚗𝚏𝚛𝚘𝚗𝚝𝚊𝚝𝚒𝚘𝚗𝚊𝚕 𝚊𝚋𝚘𝚞𝚝 𝚌𝚎𝚛𝚝𝚊𝚗 𝚝𝚑𝚒𝚗𝚐𝚜
-<img width="223" height="20" alt="image" src="https://github.com/user-attachments/assets/20963704-a161-41ce-8b30-566ba07d14e3" />
+int unless i have dniuf/dniuid
+<img width="562" height="19" alt="image" src="https://github.com/user-attachments/assets/dbcd97bd-9ba1-4691-af68-e53a6cf9eab5" />
 
-𝙸𝚛𝚕💕~ 𝙱, 𝚃, 𝙷, 𝚁, 𝙺
 
-𝙾𝚗𝚕𝚒𝚗𝚎💕~ 𝚂, 𝙺, 𝙱, 𝙰, 𝚃, 𝙴
+ɪʀʟ~ ʙ, ᴛ, ʜ, ʀ, ᴋ
 
-<img width="223" height="20" alt="image" src="https://github.com/user-attachments/assets/20963704-a161-41ce-8b30-566ba07d14e3" />
+ᴏɴʟɪɴᴇ~ s, ᴋ, ʙ, ᴀ, ᴛ, ᴇ
 
-𝙻𝚒𝚗𝚔𝚜
+<img width="562" height="19" alt="image" src="https://github.com/user-attachments/assets/fbd3e234-070e-473c-9470-6544934859e5" />
+
 
 𝚢𝚘𝚞𝚝𝚞𝚋𝚎: https://www.youtube.com/@Aminafklol
 
