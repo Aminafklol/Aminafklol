@@ -2,7 +2,8 @@
 ![](https://komarev.com/ghpvc/?username=Aminafklol&label=Audience+members+🎈&color=green)
 
 <p align="center"> 
-<img width="232" height="370" alt="image" src="https://github.com/user-attachments/assets/ec156605-56a4-4bfc-96ea-88084d699e49" />
+<img width="535" height="589" alt="6aff5c14123f3fac3e26bdde0ffc295d" src="https://github.com/user-attachments/assets/2c912d0d-9c93-4151-80d4-f84d27366780" />
+
 
 <p align="center"> 
 $\color{yellow}\text{Number one looey fan and fictionkin}$
