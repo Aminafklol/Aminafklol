@@ -1,4 +1,5 @@
-![](https://komarev.com/ghpvc/?username=Aminafklol&label=Audience+members+🎈&color=yellow)
+![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FAminafklol&label=pups&labelColor=%23ffb6c1&countColor=%23dce775&style=flat&labelStyle=upper)
+  
 <p align="left"> 
 <img width="306" height="370" alt="Untitled52" src="https://github.com/user-attachments/assets/1a480e1c-948b-4081-a3a1-be3c26534a61" />
 
