@@ -14,7 +14,7 @@
  <br><p align="center">No dni i block freely
  <br><p align="center">pfp by me!!
 
- <br><p align="center"><img width="400" height="15" alt="image" src="https://github.com/user-attachments/assets/034b2957-7257-4e0d-abfc-f88f0b0507b9" />
+ <br><p align="center"><img width="600" height="15" alt="image" src="https://github.com/user-attachments/assets/034b2957-7257-4e0d-abfc-f88f0b0507b9" />
 
 
  <br><p align="center"><img width="470" height="532" alt="2026_10_15_0mi_Kleki" src="https://github.com/user-attachments/assets/04e0c38b-2048-4beb-a3b5-604b60ad9d1f" />
