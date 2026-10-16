@@ -18,3 +18,14 @@
 
 
  <br><p align="center"><img width="470" height="532" alt="2026_10_15_0mi_Kleki" src="https://github.com/user-attachments/assets/04e0c38b-2048-4beb-a3b5-604b60ad9d1f" />
+
+<table align="center"><th>
+<details><summary> <br> "why do you kin looey"  </summary>  
+well honestly, Looey is a character i relate to the most, and i feel like they're the only character i can fully understand and sympathize with. He has to be one of my most favorite characters across all fandoms. Whenever i see hate directed towards him, if feels like they're also hurting me. Abit cringe, but my bond with this character is really strong. I don't know where id be if looey never existed. 
+
+(´｡• ᵕ •｡`)
+ </details>
+</th></table>
+
+
+
