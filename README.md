@@ -12,7 +12,7 @@
  <br><p align="center">Looey kin + N1 fan!!
  <br><p align="center">~ ❗Doubles and Looey yumes IWC❗~
  <br><p align="center">No dni i block freely
- <br><p align="center">pfp by me!!
+ <br><p align="center"> dave strider my goat
 
  <br><p align="center"><img width="600" height="15" alt="image" src="https://github.com/user-attachments/assets/034b2957-7257-4e0d-abfc-f88f0b0507b9" />
 
