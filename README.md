@@ -9,7 +9,7 @@
 
  <br><p align="center"> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ebb8ce5b-f4c1-4046-9949-c6a3b8f6e3b6" />
 
- <br><p align="center">Looey kin + N1 fan!!
+ <br><p align="center">Looey fictionkin + N1 fan!!
  <br><p align="center">~ ❗Doubles and Looey yumes IWC❗~
  <br><p align="center">No dni i block freely
  <br><p align="center"> dave strider my goat
