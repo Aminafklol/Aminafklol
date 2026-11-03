@@ -25,6 +25,8 @@
  <br><p align="center"><img width="650" height="55" alt="Screenshot 2026-10-29 135540" src="https://github.com/user-attachments/assets/f70369d5-46da-4149-9ccd-af7f4333ba63" />
  <br><p align="center"><img width="253" height="60" alt="Screenshot 2026-10-05 124912" src="https://github.com/user-attachments/assets/ab5f27d6-04db-4c06-a409-0b383a4dfdde" />
  <br><p align="center"><img width="380" height="57" alt="Screenshot 2026-10-05 124630" src="https://github.com/user-attachments/assets/d4edb279-771d-4bb4-8705-d2378a182ff3" />
+  <br><p align="center"><img width="392" height="58" alt="image" src="https://github.com/user-attachments/assets/b107ea38-ef39-47de-a052-36f75062805d" />
+
 <br><p align="center"> <img width="560" height="55" alt="image" src="https://github.com/user-attachments/assets/5d9898a9-4770-4d94-a1cc-ed7ebceacb9c" /> (there was already a looey grrrr)
 
 
