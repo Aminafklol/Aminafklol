@@ -1,14 +1,18 @@
 <img width="1199" height="151" alt="Untitled53_20261015125422" src="https://github.com/user-attachments/assets/3505ddde-f2b7-45b0-9e29-bd06646773ee" />
 
 
-<br><p align="center"> <img width="294" height="266" alt="e435a9806535a777bc058d208e0418a9" src="https://github.com/user-attachments/assets/3ccc1133-1d5f-4198-a642-8ad37e76b0ec" />
-
-
-
 
 
 
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FAminafklol&label=pups&labelColor=%23ffb6c1&countColor=%23dce775&style=flat&labelStyle=upper)
+
+
+
+
+<br><p align="center"> <img width="294" height="266" alt="e435a9806535a777bc058d208e0418a9" src="https://github.com/user-attachments/assets/3ccc1133-1d5f-4198-a642-8ad37e76b0ec" />
+
+
+
 
 
  <br><p align="center"> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ebb8ce5b-f4c1-4046-9949-c6a3b8f6e3b6" />
