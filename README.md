@@ -9,10 +9,6 @@
 
 
 
-<br><p align="center"> <img width="294" height="266" alt="e435a9806535a777bc058d208e0418a9" src="https://github.com/user-attachments/assets/3ccc1133-1d5f-4198-a642-8ad37e76b0ec" />
-
-
-
 
 
  <br><p align="center"> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ebb8ce5b-f4c1-4046-9949-c6a3b8f6e3b6" />
@@ -54,6 +50,8 @@
 
 
 
+
+
 <table align="center"><th>
 <details><summary> <br> "why do you kin looey"  </summary>  
 well honestly, Looey is a character i relate to the most, and i feel like they're the only character i can fully understand and sympathize with. He has to be one of my most favorite characters across all fandoms. Whenever i see hate directed towards him, if feels like they're also hurting me. Abit cringe, but my bond with this character is really strong. I don't know where id be if looey never existed. 
@@ -65,6 +63,27 @@ well honestly, Looey is a character i relate to the most, and i feel like they'r
 
 
 
+
+
+
+
+
+
+
+
+
+<table align="center"><th>
+<details><summary> <br> "obligatory homestuck gif section"  </summary>  
+<img width="294" height="266" alt="e435a9806535a777bc058d208e0418a9" src="https://github.com/user-attachments/assets/3ccc1133-1d5f-4198-a642-8ad37e76b0ec" /><img width="500" height="222" alt="a3996e6b870e46c934a613bb2cfaea6c" src="https://github.com/user-attachments/assets/8ce60c17-4676-4154-b013-4ccc0ff6d1b8" />
+
+<img width="315" height="241" alt="ae76a329cdb70af067454cbbf5b2bb2b" src="https://github.com/user-attachments/assets/a09f0198-1ae8-4640-9a0a-1d5ac5edf637" />
+<img width="469" height="364" alt="846c3d1d2e952da7790cd833705b4cdf" src="https://github.com/user-attachments/assets/70f4337e-1712-420f-9730-5e4b18a20c7d" />
+
+<img width="500" height="500" alt="855cafdb938a1cce468867d264640dff" src="https://github.com/user-attachments/assets/cf977bd0-9a46-452f-ae2a-911c7fb3b041" />
+
+
+ </details>
+</th></table>
 
 
 
