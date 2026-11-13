@@ -15,8 +15,7 @@
 
  <br><p align="center">Looey kinnie + N1 fan!!
  <br><p align="center">~ ❗Doubles and Looey yumes IWC❗~
- <br><p align="center"> idgaf who follows me 
-  <br><p align="center"> i block freely doe 👀
+  <br><p align="center"> i block freely
  <br><p align="center"> Homestuck fans int!!
  <br><p align="center"> please tell me if im friends with someone problematic its happened multiple times before
 
