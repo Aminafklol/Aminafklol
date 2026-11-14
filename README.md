@@ -18,6 +18,7 @@
   <br><p align="center"> i block freely
  <br><p align="center"> Homestuck fans int!!
  <br><p align="center"> please tell me if im friends with someone problematic its happened multiple times before
+ <br><p align="center"> if ur showing as offline youre gonna hav to remind me of who u r im sorry i have terrible memory
 
  <br><p align="center"><img width="600" height="15" alt="image" src="https://github.com/user-attachments/assets/034b2957-7257-4e0d-abfc-f88f0b0507b9" />
 
