@@ -37,6 +37,8 @@
 
 <br><p align="center"> <img width="560" height="55" alt="image" src="https://github.com/user-attachments/assets/5d9898a9-4770-4d94-a1cc-ed7ebceacb9c" /> (there was already a looey grrrr)
 
+<br><p align="center"> <img width="532" height="37" alt="image" src="https://github.com/user-attachments/assets/156a20be-11c6-4886-8d23-79e7f2552d05" /> (it was supposed to be tavros nitram but they only put his last name cries)
+
 
 </details>
 
